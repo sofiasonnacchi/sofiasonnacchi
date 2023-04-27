@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sofiasonnacchi
+- 👀 I’m a MSc Biomedical Engineering student @PoliMi
+- 📩 contact me: sofia.sonnacchi@mail.polimi.it
